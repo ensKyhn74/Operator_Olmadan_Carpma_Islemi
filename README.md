@@ -1,0 +1,1 @@
+# Operator_Olmadan_Carpma_Islemi
